@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PatrickBK
-- 👀 I’m interested in you
+- 👀 I’m interested in making the world a better place
 - 🌱 I’m currently learning to be more like Jesus
 - 💞️ I’m looking to collaborate on breaking brokenness in Jesus name
 - 📫 How to reach me https://theyworksfoundation.org/en/contactinfo
