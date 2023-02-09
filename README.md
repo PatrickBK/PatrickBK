@@ -2,7 +2,7 @@
 - 👀 I’m interested in you
 - 🌱 I’m currently learning to be more like Jesus
 - 💞️ I’m looking to collaborate on breaking brokenness in Jesus name
-- 📫 How to reach me https://patrickboskessen.myportfolio.com/contact
+- 📫 How to reach me https://theyworksfoundation.org/en/contactinfo
 
 <!---
 PatrickBK/PatrickBK is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
